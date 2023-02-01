@@ -1,1 +1,1 @@
-https://andyjumars.number01.github.io
+https://andyjumars.github.io/number01.github.io
